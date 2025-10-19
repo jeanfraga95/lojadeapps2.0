@@ -1,0 +1,1 @@
+# lojadeapps2.0
